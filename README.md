@@ -10,4 +10,4 @@
 
 平台精选大量国产一级视频资源，内容涵盖剧情演绎、真实自拍、激情互动等多种类型。用户可直接免费播放所有影片，高清无广告，界面简洁易用。适配手机与电脑端，支持全天候无障碍浏览，是追求高效看片体验的理想之选。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi4 ）</span>
